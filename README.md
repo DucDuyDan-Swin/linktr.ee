@@ -1,1 +1,1 @@
-linkt.ee clone
+linkt.ee/DuyDan clone
